@@ -1,1 +1,1 @@
-# digitalmarocschool
+# DMS
